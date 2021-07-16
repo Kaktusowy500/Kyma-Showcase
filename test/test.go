@@ -1,1 +1,1 @@
-Jak się masz?
+Ala ma koteła
